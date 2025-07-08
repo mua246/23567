@@ -24,4 +24,4 @@
 虽然有很多免费的资源，但我们应该支持正版内容和创作者。通过订阅或付费观看，不仅能为创作者提供经济支持，也能确保内容质量的持续提升。遵守版权法、合法观看资源是每个用户的责任。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/mua246/23567 ）</span>
